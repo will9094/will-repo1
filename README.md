@@ -1,1 +1,1 @@
-# will-repo1
+# will-repo1 this is the start of my cursor journey
